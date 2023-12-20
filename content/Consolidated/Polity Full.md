@@ -22,4 +22,4 @@
 
 ![[Anti Defection Law]]
 
-![[Emergency Provisions]]
+![[gency Provis]]
