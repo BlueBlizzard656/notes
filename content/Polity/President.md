@@ -58,7 +58,7 @@ i.e. $\gt$ 50% votes
 	- supreme commander of defence forces, appoints chiefs of army, navy, air force
 	- declare war or conclude peace
 7. Emergency
-	- refer: [[gency Provis]]
+	- refer: [[t]]
 
 ## Veto Powers
 - Absolute
