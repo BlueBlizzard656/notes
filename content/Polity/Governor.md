@@ -29,7 +29,7 @@ Gov supposed to act on aid and advice of SCoM except where he has been provided 
 1. **Article 239(2)**: gov appt as administrator of adjoining UT shall act at his discretion wrt administration of UT
 2. **Sch6, Para 9**: if dispute wrt share of autonomous district in royalty from mining & licence $\rightarrow$ Gov shall exercise discretion
 3. States with spl statuts (Assam, Sikkim, Arunachal Pradesh): Gov exercises spl powers at discretion
-4. **Art 356**: gov exercises his discretion on submission of reports wrt [[t#Failure of Constitutional Machinery (356)|FoCM]]
+4. **Art 356**: gov exercises his discretion on submission of reports wrt [[Emergency Provisions Backup#Failure of Constitutional Machinery (356)|FoCM]]
 5. **Art 200**: Gov may reserve bill for assent of Prez if he considers it to be of nat. impt
 
 ## Criticism of Position
