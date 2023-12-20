@@ -1,0 +1,16 @@
+## Analysis
+- India one of dew democratic countries to incl. PD
+- PD against ==liberal democracy==
+- **mere suspicion**  (not even committing the crime!)
+- ironic $\implies$ consti makers victim of such laws
+- **Mariappan v District Collector** $\implies$ PDL to prevent crime, not punish
+- **Abdul Kareem Case**: [[Fundamental Rights#Article 22|Article 22]] not mere formality
+	- PD must be used only in **exceptional cases**
+- **NSA 1980** must balance b/w pub interest and individual freedom
+- $\gt$ 75% NSA orders b/w 2018-20 found incorrect
+- Allahabad HC overturned 94 cases by state govt reg NSA
+- Courts face huge pendency; several months to get habeas corpus
+- ==political victimization== achieved
+- PDL still imp for nat sec (naxalism, terrorism, insurgency)
+- but need stricter checks and balances
+- maintain balanced approach: individual liberty and security of state

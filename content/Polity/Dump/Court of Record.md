@@ -1,0 +1,1 @@
+A court of record is a trial court or appellate court in which a **record of the proceedings is captured and preserved**, for the possibility of appeal. A court clerk or a court reporter takes down a record of oral proceedings.

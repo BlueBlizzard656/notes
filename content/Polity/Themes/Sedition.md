@@ -1,0 +1,8 @@
+- **Kedarnath v State of Bihar**: sedition fine, but have narrow meaning
+	- only acts affecting order, integrity or sovereignty
+- no sedition of no incitement to violence
+- FoSE shouldn't affect security of state (refer [[Fundamental Rights#Parts of 19(1)|FR 19(1)(a)]])
+- use when outrage religious feelings or create enimity
+- **UAPA 1967**: protect sovereignty and integrity of India
+- decency and morality
+	- contemporary standards test

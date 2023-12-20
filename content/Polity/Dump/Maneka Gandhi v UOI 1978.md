@@ -1,0 +1,7 @@
+- "public order" vague and subjective
+- confiscation of passport violates [[Fundamental Rights#Article 21|Article 21]]
+- denial of right violates [[Fundamental Rights#Article 14|Article 14]]
+- Overrules previous decision saying Article 14, 19 and 21 are mutually exclusive (AK. Gopalan v State of Maha 1950)
+- 14, 19 and 21 must be seen interrelated
+- PEBL must be just, fair and reasonable
+- court will examine even legis actions
